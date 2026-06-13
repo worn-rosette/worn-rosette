@@ -1,3 +1,3 @@
 i will be replacing this later!
+<img width="819" height="460" alt="0ecf8fa4158a84728ae49da6f9a41d64" src="https://github.com/user-attachments/assets/2f72f878-dc84-4f18-af40-1122279c330d" />
 
-<img width="960" height="1030" alt="Screenshot 2026-05-26 185204" src="https://github.com/user-attachments/assets/2f1b4acc-5feb-4bdb-9985-dd1ad0e61870" />
