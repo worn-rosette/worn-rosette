@@ -17,7 +17,7 @@ not alot of info to say here, the logo on top is the clan symbol
  ###  🌼> . I love talking to people !! so if you see me int freely!
  im sorry if i withdraw mostly in bad situations, even if its something small or not towards me,
 
-  ###  🌼> . i make alot of ocs!
+###  🌼> . i make alot of ocs!
 hehe, in my warrior cats clan there is a total of 26 cats in that clan !
 
 <p align="left">
